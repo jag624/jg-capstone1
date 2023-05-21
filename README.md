@@ -1,1 +1,0 @@
-# jg-capstone1
